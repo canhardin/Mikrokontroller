@@ -1,2 +1,2 @@
-# Mikrokontroller-A081_20081010087_Fatwa_Ratantja_K.
-link vedeo : https://drive.google.com/drive/folders/16woX4C72SHvL7U4HE7rGbd-OM8IdQogB?usp=sharing
+# 20081010090_Fajar Chandra A_Mikro.
+link vedeo : https://drive.google.com/file/d/129VKr1S6p6ZGzwwRbS5awS3Mv0tc4Mt1/view?usp=drive_link
